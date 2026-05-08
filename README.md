@@ -1,1 +1,0 @@
-# CSC101-MahnoorKiani-SP2026
